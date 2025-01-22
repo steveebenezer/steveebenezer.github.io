@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The War of Waters"
-date:   2025-01-07 05:42:41 +0530
+date:   2025-01-23 05:42:41 +0530
 categories: blog
 ---
 The eternal battle between waters and dry lands rages on - pushing and pulling, guided by moon and sun. Waves shift directions, sometimes breaching the shores' ancient boundaries, flooding past God-drawn lines. In their wake follows destruction and despair. How marvelous yet terrible is nature's raw power. No guilt or shame can command the flood to retreat to its borders.
